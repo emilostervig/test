@@ -4,4 +4,10 @@ look at your nose, man.
 
 Nose long like garden hose.
 
-When the ting went quack quack quack; You men were ducking.
+sauce, raw sauce. No ketchup. Just sauce.
+
+The ting goes;
+SKRAAA
+PA PA PA KA KA
+SKIPIDIKAKA
+
